@@ -12,7 +12,7 @@ In this bustling concrete jungle of a city, stood the temple on top of a hill su
 
 Having learnt the whole in and outs of the temple, I got invited to have a meal as a reward for listening so attentively, something my rumbling stomach accepted for me, eliciting a chuckle from the monk. Stuffing my face with food for the first time in a while, my tired state hit me like a truck. The monk watching me, offered a room I could use as it had gotten late. The room was for monks-in-training but none had shed their modern life in recent years. 
 
-The sounds of footsteps coming closer and closer were like a noose tightening around my neck, depriving me of oxygen. No wait, I was just lightheaded from all the bloodloss. 
+The sounds of footsteps coming closer and closer were like a noose tightening around my neck, depriving me of oxygen. 
 
 Glancing at my blood-stained knife in my hand, I debated which way to die was less painful. Stabbing myself in the neck or getting shot by those officers outside. 
 
@@ -28,7 +28,7 @@ Having lost strength in my legs, I opted to lay there, in the middle of the room
 
 The officer couldn’t help but ask, seeing the still body of the girl. He had a daughter about her age and all she did was chat with her friends and stay up late.
 
-“Don’t let her appearance fool you, we have four confirmed murders and three unconfirmed”
+“Don’t let her appearance fool you, we already have three confirmed murders”
 
 “Wow, how did a girl like her turn into this? She must have been possessed or something”, rubbing his arms, he glanced around.
 
@@ -812,7 +812,7 @@ Following her, I looked at my mother as she disappeared from my view. She had ta
 
 “This one will do”, turning over a rock, a bunch of insects scrawled around as their home had disappeared. I took note of a particular worm as it squirmed there in the dirt. It was disgusting how it looked as it twirled into itself in a continuous motion. Was the bright midday sun burning it? Why don’t you just dig downwards instead, you incompetent worm. Would I have done the same thing had I been reincarnated as it instead?
 
-I tried stabbing it with a stick and it squirmed away, seemingly unharmed. I can’t even kill this stupid insignificant worm.
+I tried stabbing it with a stick and it squirmed away, seemingly unharmed. I stabbed another one, same thing happened. I can’t even kill a single stupid insignificant worm.
 
 “Whoah, look at that beetle\!”
 
@@ -1064,18 +1064,6 @@ Tonight. Tonight? *Tonight.*
 
 # Chapter 7
 
-I threw a pebble at the window and watched as it made a clinking sound, bouncing off into the moonlit grass. Making sure the house had gone quiet, I snuck out. Staying still after that magnificent sight yesterday? I couldn’t. I threw another pebble at the second floor window. This should be his room. 
-
-Bending down to pick up another pebble, the window finally opened. A welcome face peeked out.
-
-“Esther?” He rubbed his eyes. “Why are you throwing pebbles?”
-
-“I want to talk to you”
-
-“Right now?” Finn glanced at the moon. 
-
-“It’s cold out here.” 
-
 Hearing something plink at his window, Finn woke up after the third time it happened. With heavyset feet, he shuffled to the window, opening it. He thought it was one of the boys always hanging out with him. Instead, under his window stood someone unexpected. It was Esther. Her golden hair glistened in the moonlight. She was about to throw another pebble until she noticed him.
 
 “Ah, there you are." She said cheerfully.
@@ -1170,13 +1158,13 @@ I glanced around, it was my old classroom.
 
 “That can’t be…”
 
-“What do you mean?” Ann tried to balance a pencil on her nose.
+“What do you mean?” Ann tried to balance a pencil on the tip of her nose.
 
-“I killed you, you are supposed to be dead”
+“I killed you, you are supposed to be dead.” The pencil snapped in half.
 
 “Oh, right”
 
-The scene changed. Ann was currently laying in a casket. Her family and friends were gathering around us. The funeral hall was filled with an uncountable amount of flower crests. The smell irritated my nose.
+The scene changed. Ann was currently laying in a casket. Her family and friends were gathering around us. The funeral hall was filled with an uncountable amount of flower crests. The fragrant smell of flowers made me sick.
 
 “Tell me”, Ann stared at me with her brown eyes.
 
@@ -1216,11 +1204,11 @@ The thing covering my eyes disappeared. A singular lamp lit up the room. There w
 
 “You’re surprisingly calm for being tied up.” The middle aged man said. He looked like an older version of Finn.
 
-“What do you want?” Something white caught my attention. White lilies. “Are you going to kill me?”
+“What do you want?” I glared at him.
 
-“Ha ha\! Quick on the uptake I see”, he flashed me a creepy smile.
+“Straight to the point I see.” He flashed me a creepy smile.
 
-I tried to break from my bondage.
+I tried to break free from my bondage.
 
 “Ah, ah ah\!” He sang while wagging his finger. “Don’t waste your energy, no one has broken free before\!” He seemed proud.
 
@@ -1248,13 +1236,13 @@ I tried to break from my bondage.
 
 He took a step closer. “What was that?”
 
-“Don’t…” He turned his ear toward me. “Don’t you fucking dare\!” Using all my might, I slammed his head with my own. I ended up falling over together with the chair. 
+“Don’t…” He turned his ear toward me. “Don’t dare touch her\!” Using all my might, I slammed his head with my own. I ended up falling over together with the chair. 
 
 “You touch and I will kill-”
 
-“You bitch\!”, he landed a kick to my stomach, the tip of his shoe digging into it.
+“You demon brat\!” He landed a kick to my stomach, the tip of his shoe digging into it.
 
-“Ugh\!”, some of my spit flew out.
+“Ugh\!” Some of my spit flew out.
 
 “That does it, after I’m finished with you”, my vision changed as my hair got yanked, “Your pretty little mother is next.”
 
@@ -1265,10 +1253,6 @@ He pulled me up, chair and all. I had to get out of here, Victoria was in danger
 The hammer ascended higher. He was grinning.
 
 “Wait, stop\!”
-
-“Too late\!”
-
-Slam\! My index finger got smashed.
 
 # Chapter 8
 
@@ -1290,14 +1274,212 @@ Smack\! My face got slapped.
 
 “What do you mean, isn’t she in bed?”
 
-“No she isn't\!"
+“She isn't\!" She was panicking.
 
 I leapt out of bed, running to my daughters room. It was empty.
 
-TODO: SPOILERS
+“Esther\!” Victoria began running around, throwing open the other doors, checking the rooms.
 
-TK Finn’s father seemed to be the one killing people in the streets. Saved by father who had followed after being woken up by victoria
+I called out to her. “Victoria”
 
-TK Raviel's employer met up for the first time. The duke has called his son back. His wife has died. Start of act 1
+“Esther\! Please come out\!”
 
- 
+“Victoria\!” I shook her by the shoulders, making her face me.
+
+“She’s not here”
+
+“What do you mean?” She stared blankly.
+
+“I can’t sense her with my mana”
+
+Victoria went quiet. She steeled her face.
+
+“Can you find her?”
+
+“Don’t worry” I began packing up my gear. “I will find her no matter what”
+
+After ensuring that our vicinity was safe, I led Victoria to our neighbor, explaining to them the situation. Although shocked at first, they ushered my wife inside.
+
+I closed my eyes and began focusing my mana into my eyes. I didn’t like to use this wretched technique but the situation called for it. Opening my eyes, the world lit up. The faint glow of countless colored lights filled my view. I focused on the golden lights, the color of my daughter. The glowing footsteps were pointing towards the town. Esther, where did you go in the middle of the night? 
+
+I began sprinting.
+
+\*\*\*  
+“Stop\!” It hurt.
+
+“Just stop\!” It really hurt.
+
+“Why should I?” The man stared at me. “You tried killing my son\!”
+
+“Ahhh\!” The hammer crushed another one of my fingers.
+
+Why, why why why.
+
+“Shhhh, don’t cry little girl.” He put his hand on my head. “You deserve this”. Pat, pat. 
+
+I deserve this?
+
+“You know that right?”
+
+“Huh?”
+
+“Tsk, you still don’t get it”, he raised his hammer again.
+
+I don’t get it, do I really deserve this? I just wanted to have a normal life. 
+
+My voice filled the room as my middle finger got crushed.
+
+“That should be enough.” The hammer clattered to the floor.
+
+I saw the sight of a knife. I want to see Victoria. I want to taste her cooking again. I want her to give me a hug again.
+
+“Mom…” I really don’t want to die.
+
+“Don’t you worry, she will visit you soon.” He raised his knife.
+
+I’m sorry mom, I can’t stop crying. Please forgive me.
+
+The knife flew towards my neck. I felt nothing as it grazed my neck. A thud sounded from the floor. Through my tear-filled eyes I saw the knife laying there, the hand still gripping it.
+
+“You bastard\!”
+
+My torturer got sent flying into the wall by a swift kick. Gale was standing there holding a sword. My dad was here.
+
+“You dare touch my daughter\!” The blade flew elegantly through the air, slicing off another hand.
+
+“Ahh\! My hands\!”
+
+“Shut your mouth\!” His face flew backwards, a few teeth hit the ground.
+
+“S-shtop\!”
+
+Dad slashed with his sword. The left leg got severed.
+
+“W-wait\!”
+
+Another slash, another leg.
+
+“You bastard\! Do you know who I-”
+
+“You goddamn demon\!”
+
+The blade sliced through the air, through his neck, sending his head flying. Rolling on the bloodied floor, his eyes were still open in shock.
+
+“Esther\!” He turned toward me. Blood had spattered all over his clothes and face.
+
+“Oh my goddess, let me get you out of here.” He began untying my hands and legs.
+
+“Dad…”
+
+“It’s okay, I’m here, It’s okay.”
+
+“It hurts…”
+
+“You’re fine, don’t you worry”. He picked me up into his arms.
+
+“I really thought I was going to die…”
+
+“You’re not going to die, I’m here.”
+
+“I don’t want to die\!” I cried into his arms.
+
+The incident threw the whole town into chaos. The captain of the guards had died, his body displayed in the middle of town square for all to see. The townspeople started protesting, demanding the capture of the Executioner. The Baron had to listen to the people, lest be trampled under their angry mob. Resultingly, a bunch of guards from the surrounding towns and cities got sent to Guillain. 
+
+My dad had investigated the secret area and found a field of growing flowers, white lilies were blooming in the dark underground. I had been caught by that very same serial killer. The guards concluded the town-wide search and concluded that he had fled the town after seeing the number of guards. The angry townspeople reluctantly accepted this, and the following incident-free days seemed to reassure them. The town was in a joyous mood.
+
+Finn had disappeared somewhere, but I couldn’t care less. Karrie and Eric had a hypothesis that he also got taken by the Executioner, which I couldn’t help but find funny.
+
+And so a month had passed. The leaves were turning brown and thin summer dresses changed into jackets and coats. My fingers on my left hand could still not fully bend and scars marred my skin where the hammer had hit. 
+
+My mom had calmed down considerably, now only hovering around me occasionally. A sad expression crept onto her face each time she saw my hands, making me want to start wearing gloves. Hearing this she only got sadder, but she still made me a thin pair.
+
+Sitting with my hands clasped in my lap, I glared at the statue towering over me. What’s so funny? The marble face smirked at me. I felt my anger rising. 
+
+We were visiting the church today. Dad had asked, or demanded, that the head priest use his healing magic on me. He had a more sizable amount of divine mana and could therefore use a higher grade healing spell. The always smiling priest had frowned for a moment as my body rejected the spell. He remarked how he now knew how the other priest felt.
+
+The sun streamed through the stained glass, blinding me in the eyes. Why was I reincarnated? Was this even a reincarnation? I took over someone’s body and still had my old memories. The monks at the temple said that life was like a wheel, neither a start nor an end existed. Is that why I have my memories? Nothing made sense. Frustration began building up.
+
+I felt my face twist. And why did my knife just bounce off of that kid’s neck? The plan was perfect, there were no holes. If the golden circles hadn’t stopped me from piercing my dagger through his neck, then he wouldn’t have had the chance to retaliate. He should have had his jugular cut, resulting in him bleeding out within three minutes. I touched my stomach, it was still stinging a bit.
+
+“Is this your doing?” My voice echoed in the empty prayer room. Silence.
+
+“Why did you send me here?” The goddess just looked at me, smugly.
+
+“What am I supposed to do\!” I stood up.
+
+“I don’t understand.” I said.
+
+“I don’t understand\!” 
+
+The sun stood behind the statue, uncaringly shining its rays everywhere. The smoke from the lit incense flew upwards.
+
+“Don’t you look at me like that, wipe that goddamn smile off your face\!”
+
+Her gaze pressed me down to my knees. The smell irritated my nose.
+
+“Say something… anything…”
+
+“I didn’t ask to be reincarnated…” My fists fell to the floor..
+
+“I can’t even kill anyone in this life\!” Thumps sounded from the carpeted floor.
+
+“I can’t do this…” Tears rolled down from my face, staining the blood-red carpet. “Tell me what to do…”
+
+“Esther\!” Victoria ran over to me, finding me splayed out in front of the statue.
+
+“What’s wrong?” She hugged me there on the floor.
+
+I pressed my face into her arms. “Mom…” 
+
+“What is it sweetie? It’s okay, just tell me”
+
+“I want to go home…”
+
+“Of course, we will go home right away.” Her fingers ran through my hair.
+
+\*\*\*
+
+Today was my birthday, or more correctly, it was Esther’s birthday. Sugar was hard to come by so the small cake in front of me was a bit surprising. Mom had splurged a bit with some help from our neighbor, Karrie's family, and baked a cake. It was a simple thing but it tickled my heart nonetheless.
+
+Invited to my first ever birthday party and Esther's fourteenth party were: my parents, Karrie’s parents, Karrie, and Eric. We had gotten much closer these past months. The cold had seeped in and the naked trees were covered in fluffy white snow. 
+
+“Congratulations Esther\! May the goddess watch over you\!” Karrie said enthusiastically. Yeah, no thanks.
+
+“What are you gonna wish for?” Eric asked.
+
+Dad answered instead of me. “Of course she will ask for money\!” 
+
+“What are you saying?” Karrie’s dad asked. “A growing girl only has one thing to wish for, gems\!”
+
+“Oh, you’re right”
+
+Karrie’s mom let out a sigh. “You two…”  
+
+“What are you going to wish for?” My mom asked. 
+
+My wish? I’ve never wished for something before. I felt my eyebrows scrunch together. I glanced through the room. Dad and Karrie’s dad were busy arguing on what a girl wanted to wish for. The sighs got louder the more they argued. Karrie and Erik were busy not trying to puke their dinner out. And my mom, with her pretty blue eyes, was busy looking at me. The whole room smelled of cake. It’s sweet smell made me smile a little. I only had one wish on my mind right now.
+
+“My wish…” The room went quiet.
+
+The corners on my mouth shaped a big smile. It was refreshing how my teeth felt, enveloped by the warmth of the people present. “My wish is to always be happy like this\!” 
+
+I picked up the knife with my right hand and cut into the cake. Applause painting the background as I prepared a slice. 
+
+“Oh wait a minute”. Someone had knocked on the door. “Let me go check who it is”, my dad said.
+
+“Raviel? What are you doing here?” It was the lady with the bow that had hired him. She didn’t have the bow with her today.
+
+“I have come here as a messenger”
+
+“A messenger?” My dad grasped the letter handed to him.
+
+“Have a good day.” She grabbed the side of her skirt, and gave a curtsy. “My lord” 
+
+By the time I blinked, dad had already grabbed her by the neck, almost lifting her off her feet.
+
+“Who sent you?” His murderous aura filled the room, shocking us into silence. 
+
+Raviel didn’t seem distressed in the least.
+
+“Duke Nikodemus”
+
