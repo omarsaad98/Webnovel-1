@@ -40,21 +40,21 @@ The man immediately got drunk.
 
 Walking a bit further, he suddenly got really hungry.
 
-“Is there nothing to eat?”, he glanced around. The whole village was sleeping.
+“Is there nothing to eat?” He glanced around. The whole village was sleeping.
 
 It was still a while before he arrived home and really wanted to eat now. Then he spotted a really plump chicken sleeping in a cage behind a house.
 
-“That chicken looks really good”, the man said as he jumped over the fence.
+“That chicken looks really good.” Yhe man said as he jumped over the fence.
 
 Lifting up the axe he found nearby, he chopped off its head.
 
 Luckily, the backyard had a kitchen. Plucking off the feathers, he threw it in a pot of boiling water.
 
-“Ah, now that hits the spot”, the man said as he rubbed his belly. Only bones were left of the plump chicken.
+“Ah, now that hits the spot.” The man said as he rubbed his belly. Only bones were left of the plump chicken.
 
 Hearing the commotion in her backyard, the house owner went out to investigate.
 
-“My chicken\!”, she said upon spotting the blood-soaked man. “You killed my prized pet\! Guards\!”
+“My chicken\!” She said upon spotting the blood-soaked man. “You killed my prized pet\! Guards\!”
 
 Not wanting to get in trouble, he assaulted her, making her stay quiet. The men in the village often discussed which lady was the prettiest, and this woman always ended on top of their lists.
 
@@ -68,11 +68,11 @@ The sun had peeked over the mountains when he finally arrived home. Slipping int
 
 “Oh, I had to help out someone”
 
-“You always do that”, the wife said and fell back asleep.
+“You always do that.” The wife said and fell back asleep.
 
-“A good story, no?”, the monk commented. “A drunk person will lose all reason and do whatever their instincts tells them to do”
+“A good story, no?” The monk commented. “A drunk person will lose all reason and do whatever their instincts tells them to do”
 
-“I don’t know”, I said, “would some alcohol really make someone do all that?”
+“I don’t know.” I said “Would some alcohol really make someone do all that?”
 
 The monk chuckled. “You may still be a bit too young to understand”
 
@@ -88,7 +88,7 @@ I could see my father clench his fist. “Good to see you too, father. We were w
 
 “It’s quite all right, thank you. We don’t want to take up more of your time than necessary”
 
-The priest stood still for a moment, still smiling. “What a shame I just got these new tea leaves from TKcapitalname.” He thought for a second. “You must be talking about the father who joined us recently.”
+The priest stood still for a moment, still smiling. “What a shame I just got these new tea leaves from Barre, it's not often you get things from the capital here you know?” He thought for a second. “You must be talking about the father who joined us recently.”
 
 “Speaking of which, he consulted with me on an interesting matter of his” He turned his head away and stared at me. His jovial expression was still plastered on his face. 
 
@@ -99,9 +99,9 @@ Something gold flickered in his eyes as my father stepped forward to shield them
 
 The priest left first through the door leaving us behind. 
 
-“They are still hard to converse with wherever it is”, my father sighed, “I will be back soon”. And so only I and my mother were left.
+“They are still hard to converse with wherever it is.” My father sighed. “I will be back soon”. And so only I and my mother were left.
 
-“Want to go visit the park?”, my mother bent down to talk to me, “I heard they got some new pretty flowers\!”
+“Want to go visit the park?” My mother bent down to talk to me, “I heard they got some new pretty flowers\!”
 
 The smell of flowers tickled my nose as I strolled around holding my mothers hand. Roses the size of my hand and hydrangeas in all kinds of colors lit up the well-trodden path. 
 
@@ -113,23 +113,23 @@ We sat on a bench, watching the church.
 
 “Mom”, I asked, “would you rather I had my memories back?”
 
-“What are you talking about sweetie?”, she furrowed her brows.
+“What are you talking about sweetie?” She furrowed her brows. I hope she doesn’t get wrinkles in the future.
 
 “Isn’t that the real reason why we are here? To ask for a cure?”.
 
-“Well…”, it looked like she tried to find the right words, “you know we will always love you, right?”
+“Well…” It looked like she tried to find the right words. “You know we will always love you, right?”
 
 I nodded.
 
 “We just figured that you may be a bit sad not knowing all the things we are talking about.” She looked at me.
 
-“I’m not”, I turned away from her gaze. “It’s kinda fun learning new things everyday”.
+“I’m not.” I turned away from her gaze. “It’s kinda fun learning new things everyday”.
 
 I didn’t need to look to figure out what expression she had. She wrapped her arms around me and gave me a hug.
 
-“Esther\!”, someone shouted my name.
+“Esther\!” Someone shouted my name.
 
-“Let's play together\!” It was Karrie wearing a dress. She seemed to also get dragged by her family to church.
+“Let's play together\!” It was Karrie wearing a dress. Her untanned shoulders peeked at me. She also seemed to get dragged to church.
 
 I got permission to play for a bit and went over to where Karrie was waving. 
 
@@ -153,78 +153,104 @@ Karrie told me more things about Esther, like her favorite color and how she nev
 
 “How do you do that”
 
-“Oh right, you just need to find a really big rock and lift it.” She motioned with her hands. “I saw some really big ones behind the church”
+“Oh right, you just need to find a really big rock and lift it.” She motioned with her hands. “I saw some really big ones behind the church\!”
 
 Following her, I looked at my mother as she disappeared from my view. She had taken a nap. 
 
-“This one will do”, turning over a rock, a bunch of insects scrawled around as their home had disappeared. I took note of a particular worm as it squirmed there in the dirt. It was disgusting how it looked as it twirled into itself in a continuous motion. Was the bright midday sun burning it? Why don’t you just dig downwards instead, you incompetent worm. Would I have done the same thing had I been reincarnated as it instead?
+“This one will do.” Turning over a rock, a bunch of insects scrawled around as their home had disappeared. I took note of a particular worm as it squirmed there in the dirt. It was disgusting how it looked as it twirled into itself in a continuous motion. Was the bright midday sun burning it? Why don’t you just dig downwards instead, you incompetent worm. Would I have done the same thing had I been reincarnated as it instead?
 
-I tried stabbing it with a stick and it squirmed away, seemingly unharmed. I can’t even kill this stupid insignificant worm.
+I tried stabbing it with a stick and it squirmed away, seemingly unharmed. I stabbed another one, same thing happened. I can’t even kill a single stupid insignificant worm.
 
 “Whoah, look at that beetle\!”
 
 I refocused my eyes.
 
-“I bet ya it will stink twice as much”, she seemed to enjoy herself as she upturned rock after rock, looking for the biggest beetle. TKinnerthoughtsmaybe
+“I bet ya it will stink twice as much,” She seemed to enjoy herself as she upturned rock after rock, looking for the biggest beetle. 
 
-“What are you dumb kids doing?” Someone interrupted Karrie’s playing.
+“What are you dumb girls doing?” Someone interrupted our playing.
 
-Strutting toward us were three boys, the one in the green-haired boy in front seemed to be the leader of the group. 
+Strutting toward us was a tall moss-headed boy and another boy trailing behind him.
 
-“Ugh, it’s Finn and his sidekicks”
+“Ugh, it’s Finn and his sidekick”
 
 “Who’s that?”
 
-“Someone annoying, just ignore them”, she turned away from them.
+“Someone annoying, just ignore them.” She turned away from them.
 
-“Hey\! Don’t ignore us\!”, the short boy on the left demanded.
+“Hey\! I asked you a question\!” Moss-boy demanded
 
-“Yeah, we’re talking to you”, the tall boy on the right agreed.
+The other boy spoke up. “Bro, why are we even talking to them? Let’s go find some cool sticks\!”
 
-“What do you want?” Karrie scoffed.
+“I don’t care about some dumb sticks\!” He suddenly roared. 
 
-“Why are you hanging with Esther?” Finn crossed his arms.
+“But you said-”
+
+Finn threw his hand over the other boy’s mouth.
+
+“Are you two done with your comedy routine?” Karrie rolled her eyes.
+
+“You\!” The green boy pointed at her. “Why are you with Esther?”
 
 “It’s Nonya”
 
-“What’s Nonya?”
+“What’s Nonya?” The other boy asked.
 
-“None of your business\!” Karrie guffawed to herself.
+“None of ya business\!” Karrie guffawed to herself.
 
-“Thats not funny\!” He interjected. “Didn’t you say you hated her”. That shut Karrie immediately up.
+“Thats not funny\!” 
 
-“Yeah, you always went around saying you hated her”, the left boy said. 
+Crossing his arms he turned to me. “Esther, you shouldn’t hang out with her.” 
 
-“‘She is always making that sad face, I’m sick of it’, didn’t you just this last week?” The boy on the right added. 
+“Why not?”
+
+“Don’t you remember? She was the one spreading those rumours”
+
+“What rumours?” 
+
+“Hey\!-” Karrie tried to interrupt him. 
+
+“That you always pretended to be sick to get attention”
+
+“Stop\!”
+
+“That you stole all her friends, and that you are a selfish person”
 
 I looked toward Karrie, it seemed like it was true.
 
 “Esther, I didn’t really mean what I said-”
 
-“Yeah right”, Finn interrupted. “You shouldn’t hang out with those types of people”, he reached his hand toward me. “Dad said good company brings a good personality. Come play with us instead.” His cheeks reddened a little as he said that.
+“Yeah right.” Finn interrupted. “You shouldn’t hang out with those types of people.” He reached his hand toward me. 
 
-*Oh, I see what’s going on.* 
+“I didn’t believe those rumours at all you know? You should hang out with someone with a good personality like me instead” His cheeks reddened a little as he said that.
 
-“No thanks”, I said flatly, making Finn’s subtle grin disappear. “I’d rather play with Karrie.”
+*I see.* 
 
-“What\! Do you know what you are saying?” Sidekick no. 1
+“No thanks.” I said flatly. Finn’s hand dropped a little. “I’d rather play with Karrie.”
 
-“Not just anyone can play with us, you know\!” Sidekick no. 2
+“What? Why?” 
 
-“I didn’t know you were like this Esther, I’m trying to help you right now\!” Finn looked angry. “Whatever, you will regret this\!” And off he stormed.
+“I don’t like stupid boys”
 
-“Hey, wait up\!”
+“I’m not stupid\!” He defended himself. “My dad’s the captain\!”
 
-“Weren’t we supposed to get her to join us?”, the sidekicks asked as they ran after him. 
+“Mom said I’m stupid.” The stupid boy said stupidly.
 
-They came and went like an unwelcome storm, bringing only our mood down. 
+“I don’t care about what your mom said\!”
 
-“Karrie”, I turned to her. She looked downtrodden.
+Frustrated, he began storming off. “You are going to regret this, I’m gonna tell my dad you rejected my sign of goodwill\!”. 
 
-“The truth is, I’m not Esther, so you don’t need to concern yourself with how I was before I lost my memories”
+“Bro wait up\!”.
+
+And so the two boys came and went like a storm, bringing only our mood down. 
+
+“Karrie.” I turned to her. She had been silent for a while now. She looked downtrodden.
+
+I turned to Karrie, she had been silent for a while now. “Karrie,” I called out. She looked at me with a conflicted expression
+
+“The truth is, I’m not the real Esther. So you don’t need to feel guilty for what you said about her.”
 
 Karrie’s eyes blew up like a pair of plates.
 
-“What?” She looked conflicted. 
+“What?” She looked shocked. 
 
 “What a bad joke…”
