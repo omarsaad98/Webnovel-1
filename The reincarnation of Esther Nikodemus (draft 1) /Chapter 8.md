@@ -46,16 +46,18 @@ After ensuring that our vicinity was safe, I led Victoria to our neighbor, expla
 
 I closed my eyes and began focusing my mana into my eyes. I didn’t like to use this wretched technique but the situation called for it. Opening my eyes, the world lit up. The faint glow of countless colored lights filled my view. I focused on the golden lights, the color of my daughter. The glowing footsteps were pointing towards the town. Esther, where did you go in the middle of the night? 
 
-I began sprinting.
+I began sprinting, the moon at my back.
 
 \*\*\*  
 “Stop\!” It hurt.
 
-“Just stop\!” It really hurt.
+“Stop it\!” It really hurt.
 
 “Why should I?” The man stared at me. “You tried killing my son\!”
 
 “Ahhh\!” The hammer crushed another one of my fingers.
+
+“No one touches my son without my permission\!”
 
 Why, why why why.
 
@@ -67,33 +69,35 @@ I deserve this?
 
 “Huh?”
 
-“Tsk, you still don’t get it”, he raised his hammer again.
+“Tsk, you still don’t get it.” He raised his hammer again.
 
-I don’t get it, do I really deserve this? I just wanted to have a normal life. 
+I don’t get it, do I really deserve this? Why do I deserve this? I just wanted to have a normal life. 
 
-My voice filled the room as my middle finger got crushed.
+My shriek filled the room as my middle finger got crushed.
 
-“That should be enough.” The hammer clattered to the floor.
+The hammer clattered to the floor. “That should be enough.” 
 
-I saw the sight of a knife. I want to see Victoria. I want to taste her cooking again. I want her to give me a hug again.
+He went to the wall. I want to see Victoria. He picked up a knife. I want to taste her cooking again. He took a step closer. I want her to give me a hug again.
 
 “Mom…” I really don’t want to die.
 
-“Don’t you worry, she will visit you soon.” He raised his knife.
+“Don’t you worry”, he raised his knife, “you will be able to meet her soon”
 
-I’m sorry mom, I can’t stop crying. Please forgive me.
+I’m sorry mom. I can’t stop crying. I promise I will stop. Please forgive me.
 
-The knife flew towards my neck. I felt nothing as it grazed my neck. A thud sounded from the floor. Through my tear-filled eyes I saw the knife laying there, the hand still gripping it.
+The knife flew towards my neck stabbing into it. I felt nothing. 
+
+A thud sounded from below my tied legs. Wrenching open my teary eyes, I saw the knife laying there, the hand still gripping it.
 
 “You bastard\!”
 
-My torturer got sent flying into the wall by a swift kick. Gale was standing there holding a sword. My dad was here.
+He flew across the room into the wall. Gale was standing there sword in hand. My dad had arrived.
 
-“You dare touch my daughter\!” The blade flew elegantly through the air, slicing off another hand.
+“You dare touch my daughter\!” The blade flew through the air, slicing off another hand. It didn’t even leave a shadow.
 
-“Ahh\! My hands\!”
+He let out a pained roar. “My hands\!”
 
-“Shut your mouth\!” His face flew backwards, a few teeth hit the ground.
+“Shut your mouth\!” His head flew backwards, a few teeth hit the ground.
 
 “S-shtop\!”
 
@@ -121,7 +125,7 @@ The blade sliced through the air, through his neck, sending his head flying. Rol
 
 “You’re fine, don’t you worry”. He picked me up into his arms.
 
-“I really thought I was going to die…”
+“I thought I was going to die…”
 
 “You’re not going to die, I’m here.”
 
@@ -155,7 +159,7 @@ I felt my face twist. And why did my knife just bounce off of that kid’s neck?
 
 “I don’t understand\!” 
 
-The sun stood behind the statue, uncaringly shining its rays everywhere. The smoke from the lit incense flew upwards.
+The sun stood behind the statue, making a halo out of its uncaringly shining rays.
 
 “Don’t you look at me like that, wipe that goddamn smile off your face\!”
 
@@ -179,10 +183,11 @@ I pressed my face into her arms. “Mom…”
 
 “I want to go home…”
 
-“Of course, we will go home right away.” Her fingers ran through my hair.
+“Of course, we will go home right away.” Her fingers ran through my hair. 
 
-\*\*\*
+“My sweet little Esther”
 
+\*\*\*  
 Today was my birthday, or more correctly, it was Esther’s birthday. Sugar was hard to come by so the small cake in front of me was a bit surprising. Mom had splurged a bit with some help from our neighbor, Karrie's family, and baked a cake. It was a simple thing but it tickled my heart nonetheless.
 
 Invited to my first ever birthday party and Esther's fourteenth party were: my parents, Karrie’s parents, Karrie, and Eric. We had gotten much closer these past months. The cold had seeped in and the naked trees were covered in fluffy white snow. 
@@ -205,24 +210,30 @@ My wish? I’ve never wished for something before. I felt my eyebrows scrunch to
 
 “My wish…” The room went quiet.
 
-The corners on my mouth shaped a big smile. It was refreshing how my teeth felt, enveloped by the warmth of the people present. “My wish is to always be happy like this\!” 
+The corners on my mouth turned it into a big smile. The air, warmed by the warmth of the people present, was refreshing as it enveloped my teeth. “My wish is to always have happy days like this\!” 
 
-I picked up the knife with my right hand and cut into the cake. Applause painting the background as I prepared a slice. 
+I picked up the knife using my right hand and cut into the cake. Applause painting the background as I prepared a slice. 
 
-“Oh wait a minute”. Someone had knocked on the door. “Let me go check who it is”, my dad said.
+“Excuse me”. Someone had knocked on the door. “Let me go check who it is.” My dad said.
 
 “Raviel? What are you doing here?” It was the lady with the bow that had hired him. She didn’t have the bow with her today.
 
-“I have come here as a messenger”
+“I have come here today as a messenger”
 
 “A messenger?” My dad grasped the letter handed to him.
 
-“Have a good day.” She grabbed the side of her skirt, and gave a curtsy. “My lord” 
+“I shall take my leave then.” She grabbed the side of her skirt, threw a leg back, and bent her knees. It was a perfect curtsy. “My lord” 
 
-By the time I blinked, dad had already grabbed her by the neck, almost lifting her off her feet.
+By the time I blinked, dad had already grabbed her by the neck, lifting her off the floor with one hand.
 
-“Who sent you?” His murderous aura filled the room, shocking us into silence. 
+“Who sent you?” His murderous aura filled the room, pressing us into silence. 
 
 Raviel didn’t seem distressed in the least.
 
 “Duke Nikodemus”
+
+She closed her eyes.
+
+“Your father.”
+
+I could hear something crash as she uttered that last part. Dad had thrown her on the floor. Gale Nikodemus, that was my father’s name. Son of the Duke of North.
