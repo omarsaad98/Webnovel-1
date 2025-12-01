@@ -733,7 +733,7 @@ The monk chuckled. “You may still be a bit too young to understand”
 
 The sermon ended and the dozens of people started streaming out of the church. We went the opposite way.
 
-“What a surprise to see you here today, TKfathername, something good happened?”, the headpriest smiled. 
+“What a surprise to see you here today, Gale, something good happened?”, the headpriest smiled. 
 
 I could see my father clench his fist. “Good to see you too, father. We were wondering if we could meet with the priest who paid us a visit a few days ago?”
 
@@ -1026,7 +1026,7 @@ Seeing that Karrie and Eric didn’t know what to say, I spoke up. “Do ghosts 
 
 “You don't look well, come here”. Victoria picked me up and put me on her lap. Karrie looked a bit envious considering what had just transpired.
 
-“Oh, yeah?” TKfathername asked. “And then what did you do?”
+“Oh, yeah?” Gale asked. “And then what did you do?”
 
 “What did I do? Well I ran of course”
 
@@ -1050,11 +1050,11 @@ Victoria fed me one of the bits of food on the table. “I’m just glad nothing
 
 Karrie’s father thought for a moment. “Maybe they got scared off by the Executioner?” Hearing the moniker, Eric and Karrie jumped a little.
 
-“What a horrid nickname, they still haven’t catched them?” TKfathername replied.
+“What a horrid nickname, they still haven’t catched them?” Gale replied.
 
 “Well, you know how our lord does things here”, he pointed his chin towards where the count’s manor stood. 
 
-Clicking his tongue, TKfathername chugged down his cup. “They always prioritise the wrong things. What happened to noblesse oblige?”
+Clicking his tongue, Gale chugged down his cup. “They always prioritise the wrong things. What happened to noblesse oblige?”
 
 “That nobles had the duty to protect the peoples? Ha, you really believe in that nonsense?”
 
@@ -1064,30 +1064,240 @@ Tonight. Tonight? *Tonight.*
 
 # Chapter 7
 
-Feeling the house go quiet, I slipped out of bed and packed up my dagger. I thought things would change in this life, but as I saw the magnificent display yesterday, I knew it. Some things would stay constant even in this life. Careful not to wake up the people in the next room, I snuck out into the moonlit night. The moon was hovering above our house staring down at me.
+I threw a pebble at the window and watched as it made a clinking sound, bouncing off into the moonlit grass. Making sure the house had gone quiet, I snuck out. Staying still after that magnificent sight yesterday? I couldn’t. I threw another pebble at the second floor window. This should be his room. 
 
-*Why don’t you just go to sleep, Esther? What would your parents say were they to find out what you had planned?*
+Bending down to pick up another pebble, the window finally opened. A welcome face peeked out.
 
-They’re not my parents and I’m not Esther.
+“Esther?” He rubbed his eyes. “Why are you throwing pebbles?”
 
-*Really? Then who are you?*
+“I want to talk to you”
 
-Of course I am-
+“Right now?” Finn glanced at the moon. 
 
-*Who*
+“It’s cold out here.” 
 
-I’m…
+Hearing something plink at his window, Finn woke up after the third time it happened. With heavyset feet, he shuffled to the window, opening it. He thought it was one of the boys always hanging out with him. Instead, under his window stood someone unexpected. It was Esther. Her golden hair glistened in the moonlight. She was about to throw another pebble until she noticed him.
 
-*You don’t know, do you? Ha ha ha\!*
+“Ah, there you are." She said cheerfully.
 
-I had arrived at Finn’s house.
+“Esther? What are you doing here?” It was in the middle of the night.
 
-TK mess up and get kidnapped, a classic trope? Or not
+“Come down, I want to talk with you”
+
+“Right now?” Finn was about to refuse, hadn’t it been Esther who asked. “Give me a second”
+
+What did she want to talk about? His heart rate rose a bit higher. With a light gait, he left his room, listed down the stairs; careful not to wake up his dad, and finally arrived at the front door. He grabbed the door handle. As the mechanism in the door began to operate, clicking sounds reverberated across the entrance. Esther was already in front of the door, waiting, smiling. 
+
+Finn couldn’t help but let out a yelp as she had been closer than he thought. 
+
+“Did I scare you?” Her crescent moon shaped eyes sparkled.
+
+“Not really…”
+
+“Come follow me\!” The words flowing from her soft lips felt almost enchanting. 
+
+Finn followed after the girl. “Where are we going?” 
+
+“Just a bit further?” She said without turning.
+
+“What do you mean?” They had walked quite the distance. “What did you want to talk about?” Wasn’t the boy supposed to be the one asking the girl out?
+
+She finally stopped. They were standing in the middle of the forest.
+
+Finn had often played in this very forest, sometimes even camping outside with his dad. They had liked this place since it was so quiet. Esther glanced around.
+
+“This looks like a good spot”
+
+“A spot for what?”, he felt his heart thumping, almost wanting to jump out of his chest. Was this really going to happen?
+
+“I have a confession I want to make”, she hid her hands behind her back. 
+
+Oh, my goddess. Calm down. His palms were sweaty, his knees felt heavy. Play it cool, Finn.
+
+“W-what is it?” Damn it, his voice cracked.
+
+“I think you already know.” She smiled shyly. “Close your eyes for me?”
+
+Done, eyes closed. He could hear her soft footsteps inch closer and closer. 
+
+“You know Finn…” She trailed the last sound of his name. “I really. Really, really. Hate people like you\!” A sudden sharp feeling poked at his throat, throwing him over backwards. Opening his eyes in shock, Esther was standing there. The dagger she held glinted in the moonlight.
+
+What? Why didn’t it pierce his neck?
+
+“Huh?”, the boy on the ground said stupidly. “Did you just stab me?” He was touching the spot where I had thrusted. 
+
+“Stay away\!” He crawled backwards as I came closer “I mean it\!” Eventually hitting one of the many trees in this forest.
+
+I stood between his sprawled out legs and lifted my dagger. It flew swiftly through the damp forest air, arriving at his neck again.
+
+“Aaa\!”
+
+It bounced off. Something yellow had appeared for a second.
+
+I stabbed again”
+
+It bounced off again. It was a yellow circle.
+
+Finn looked at me with a shocked expression before giving me a grand kick to my gut. I could see the air turn flip over, the knife flying in my periphery. 
+
+I let out a groan as the air escaped my lungs. Some dirt had gotten into my mouth.
+
+“You’re crazy\!” He stood up. “You’ve gone insane\!”
+
+I’m not insane. 
+
+“What do I do, what do I do?”
+
+“Dad, I have to wake up dad\!”
+
+Digging into the dirt with my hands, I tried to lift my body off the ground. Something approached and slammed into my head. My mind went blank.
+
+“Wake up sleepyhead, class’ done already.” 
+
+Where am I?
+
+“Hellooo? Earth to \*\*\*”
+
+“Karrie?” What’s she doing here?
+
+“Karrie? Who’s that? I’m Ann, your one and only friend. Did you have a stupid dream or something?”
+
+I glanced around, it was my old classroom.
+
+“Whats the date?”
+
+“Wow, gross. Did you read too many books again? It’s 20XX”
+
+“That can’t be…”
+
+“What do you mean?” Ann tried to balance a pencil on her nose.
+
+“I killed you, you are supposed to be dead”
+
+“Oh, right”
+
+The scene changed. Ann was currently laying in a casket. Her family and friends were gathering around us. The funeral hall was filled with an uncountable amount of flower crests. The smell irritated my nose.
+
+“Tell me”, Ann stared at me with her brown eyes.
+
+“Did you really have to kill me?”
+
+She was smiling.
+
+“You did well my son. Just go back to sleep. Your old man will sort out this misunderstanding."
+
+I couldn’t see.
+
+“It wasn’t a misunderstanding\! She tried to kill me\! Look\!”
+
+My head ached.
+
+“Finn, go back to your room.”
+
+“But Dad\!”
+
+My hands were tied.
+
+“I won’t say it twice”
+
+He paused. “What are you going to do”
+
+“Go to your room”
+
+The sound of footsteps could be heard walking away from us. A door opened and slammed shut.
+
+“I know you are awake, kid.”
+
+“Where am I”
+
+“Somewhere secret.” He answered. “Oh I almost forgot”
+
+The thing covering my eyes disappeared. A singular lamp lit up the room. There were a bunch of tools hanging on the wall. This place looked to be some carpenter’s working area.
+
+“You’re surprisingly calm for being tied up.” The middle aged man said. He looked like an older version of Finn.
+
+“What do you want?” Something white caught my attention. White lilies. “Are you going to kill me?”
+
+“Ha ha\! Quick on the uptake I see”, he flashed me a creepy smile.
+
+I tried to break from my bondage.
+
+“Ah, ah ah\!” He sang while wagging his finger. “Don’t waste your energy, no one has broken free before\!” He seemed proud.
+
+“Does your son know about your disgusting side?” There had to be a way out of here. 
+
+“Oh he knows. But you are mistaken, it's not disgusting”, he stared into my eyes.
+
+“What? Chopping off their heads is not disgusting?” I scoffed.
+
+“They deserved it.” he stated matter-of-factly.
+
+“I see”, my arms were getting heavy, “you’re just insane.”
+
+“Yeah? If I’m insane, then what of you? My son told me you tried to kill him\!” His face twisted into something ugly. Some spit landed on my face.
+
+“It’s personal”
+
+“Hah\! Is that right? Personal.” He picked up a hammer. “Would it be personal if I paid your mother a visit? What was her name, Victoria?” He licked his lips. And then suddenly his face twisted again.
+
+“Damn vixen\! Always flaunting herself everywhere she goes\! Who does she think she is\!” He picked up some nails.
+
+“That’s right, I can just pay her a visit. A personal one.” 
+
+“Don’t…” I mumbled.
+
+He took a step closer. “What was that?”
+
+“Don’t…” He turned his ear toward me. “Don’t you fucking dare\!” Using all my might, I slammed his head with my own. I ended up falling over together with the chair. 
+
+“You touch and I will kill-”
+
+“You bitch\!”, he landed a kick to my stomach, the tip of his shoe digging into it.
+
+“Ugh\!”, some of my spit flew out.
+
+“That does it, after I’m finished with you”, my vision changed as my hair got yanked, “Your pretty little mother is next.”
+
+He pulled me up, chair and all. I had to get out of here, Victoria was in danger. I have to at least tell Gale. The hammer he was holding was positioned above my hands. 
+
+“Wait”
+
+The hammer ascended higher. He was grinning.
+
+“Wait, stop\!”
+
+“Too late\!”
+
+Slam\! My index finger got smashed.
+
+# Chapter 8
+
+“Honey, wake up”
+
+“Hmm?” I felt my body shaking.
+
+“Gale get up”
+
+“What is it?” Five more minutes…
+
+Smack\! My face got slapped.
+
+“Galen Nikodemus\!”
+
+“Wh-what is it?” 
+
+“I can’t find Esther\!” Victoria seemed about to cry.
+
+“What do you mean, isn’t she in bed?”
+
+“No she isn't\!"
+
+I leapt out of bed, running to my daughters room. It was empty.
+
+TODO: SPOILERS
 
 TK Finn’s father seemed to be the one killing people in the streets. Saved by father who had followed after being woken up by victoria
 
 TK Raviel's employer met up for the first time. The duke has called his son back. His wife has died. Start of act 1
-
-TODO: 
 
  
