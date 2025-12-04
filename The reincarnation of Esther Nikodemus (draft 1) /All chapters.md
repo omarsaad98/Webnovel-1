@@ -2054,8 +2054,6 @@ It smelled disgustingly sweet. I felt my mind go blank.
 
 # Chapter 11: Lavenza
 
-TK add flashback scene of either temple discussing suffering of life or he original mom doing something. 
-
 “\*\*\*, you are probably wondering why the Buddha said life is suffering right?”
 
 I was about to put the piece of tofu in my mouth. “No?”
